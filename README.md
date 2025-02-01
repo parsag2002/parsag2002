@@ -77,4 +77,4 @@ Here are some of my GitHub statistics:
 
 ---
 
-⭐️ From [Parsa](https://github.com/parsag2002)
+⭐️ From [Parsa Golmohammadi](https://github.com/parsag2002)
