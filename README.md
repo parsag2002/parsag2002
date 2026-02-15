@@ -74,6 +74,7 @@ Here are some of my GitHub statistics:
 - 📧 Email: [Main why to contact](mailto:parsag2002@gmail.com)
 - 💼 LinkedIn: [Extended resume and biography](https://www.linkedin.com/in/parsag2002/)
 - 📸 Instagram: [Comunicating with pictures](https://www.instagram.com/parsag2002/)
+-  ᯓ➤ Telegram: [Talk to me directly](https://t.me/parsag2002)
 
 ---
 
