@@ -74,9 +74,9 @@ Here are some of my GitHub statistics:
 - 📧 Email: [Main why to contact](mailto:parsag2002@gmail.com)
 - 💼 LinkedIn: [Extended resume and biography](https://www.linkedin.com/in/parsag2002/)
 - 📸 Instagram: [Comunicating with pictures](https://www.instagram.com/parsag2002/)
-- 𝕏 X: [Live commentary](https://x.com/parsag2002/)
-- ✈️ Telegram: [Talk to me directly](https://t.me/parsag2002/)
-- ♟️ LiChess: [Challeng me](https://lichess.org/@/parsag2002/)
+- 🔳 X: [Live commentary](https://x.com/parsag2002/)
+- 🔵 Telegram: [Talk to me directly](https://t.me/parsag2002/)
+- ♟️ Lichess: [Challeng me](https://lichess.org/@/parsag2002/)
 
 ---
 
